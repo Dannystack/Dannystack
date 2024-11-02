@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dannystack
-- 👀 I’m working on being a pro full-stack developer. let's connect 
+- 👀 I’m working on becoming a pro full-stack developer. let's connect 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to colhttps://wa.me/+2348090570475?ext=Hi+Daniel+I'm+from+githhub+save +contact+as+laborate on ...
 - 📫 How to reach me 
